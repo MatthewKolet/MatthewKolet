@@ -1,8 +1,8 @@
-**Matthew Kolet**
+# Matthew Kolet
+---
+### Student
 
-Student
-
-Tippie College of Business, The University of Iowa
+### Tippie College of Business, The University of Iowa
 
 LinkedIn
 
